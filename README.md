@@ -1,1 +1,1 @@
-# LandingPageCollege
+# namemaksim.github.io
